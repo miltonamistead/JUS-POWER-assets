@@ -1,0 +1,1 @@
+# JUS-POWER-assets
